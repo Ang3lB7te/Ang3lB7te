@@ -1,4 +1,8 @@
-will edit this later I'm lazy
+Hi
+Current fandoms:
+Blocktales, Forsaken, Phighting, FNAF, anything horror analogue  
+I draw, and partake in other various crafts such as, making Kandi or anything I find on Pinterest as inspo
+I'm lazy and will edit this later
 
 <!--
 **Ang3lB7te/Ang3lB7te** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
