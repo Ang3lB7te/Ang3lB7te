@@ -15,3 +15,4 @@ really into scene/alternative fashion
 I am not up to date with what is popular at the time
 
 other games I like: Minecraft, Skate(3), visual novels (preferably horror or psychological)
+Ships I really like: 1xdoe(any media) Pizzatime (frskn) pizzaburger(anymedia) Teahero (blocktales my yume ship :3) 
