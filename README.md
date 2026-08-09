@@ -20,4 +20,4 @@ Ships I really like: 1xdoe(any media) Pizzatime (frskn) pizzaburger(anymedia) Te
 
 SHips I dislike: Not the biggest fan of ice tea (blocktales) or azuretime (frskn)
 
-Feel free to sit as any ship with me x3
+Feel free to sit as anyone with me, just preferably not the two ships above, tanks
