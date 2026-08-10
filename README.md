@@ -1,10 +1,10 @@
 Read me x3 
 
-current fandoms: Blocktales, Forsaken, Phighting,  mlp g4
+current fandoms: Blocktales, Forsaken, Phighting, mlp g4
 
-big fan of crafts, drawing, cosplay/making props, Kandi ects 
+big fan of crafts, drawing, cosplay/making props, Kandi ects, I am furry and LGBT friendly <3
 
-fandoms that still linger: Danganronpa, Fnaf, Undertale, things that were popular in 2014 TT
+fandoms that still linger: Danganronpa, Fnaf, Undertale, homestuck, things that were popular in 2014 TT
 
 music: Will Wood, Lemon demon, MCR, fandom type music, FNAF,batim onece again, 2014 fandom music and edit audios
 
