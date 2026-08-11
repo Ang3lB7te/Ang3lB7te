@@ -14,8 +14,6 @@ really into scene/alternative fashion
 
 other games I like: Minecraft, Skate(3), visual novels, (preferably horror or psychological)
 
-Ships I really like: 1xdoe(any media) Pizzatime (frskn) pizzaburger(anymedia) Teahero (blocktales my yume ship :3
+Ships I really like: 1xdoe(any media) Pizzatime (frskn) pizzaburger(anymedia) RocketHammer (phighting) Teahero (blocktales my yume ship :3
 
-SHips I dislike: Not the biggest fan of ice tea (blocktales) azuretime (frskn) or 7noli (any media)
-
-Feel free to sit as anyone with me, just preferably not the three ships above, tanks :3
+Not the biggest fan of icetea (blocktales) azuretime or 7noli TT
