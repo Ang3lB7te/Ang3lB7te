@@ -16,7 +16,7 @@ really into scene/alternative fashion
 
 other games I like: Minecraft, Skate(3), visual novels, (preferably horror or psychological)
 
-Ships I really like: 1xdoe(any media) Pizzatime (frskn) pizzaburger(anymedia) RocketHammer (phighting) Teahero (blocktales my yume ship :3
+I like most ships and parings, given they are legal
 
 I don't have any friends so I may latch onto you if you can entertain conversations well
 
