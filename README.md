@@ -16,7 +16,7 @@ really into scene/alternative fashion
 
 other games I like: Minecraft, Skate(3), visual novels, (preferably horror or psychological)
 
-I like most ships and parings, given they are legal
+I like most ships and parings, given they are both adults and not related (1xshed is all good, I find the dynamic hilarious)
 
 I don't have any friends so I may latch onto you if you can entertain conversations well
 
