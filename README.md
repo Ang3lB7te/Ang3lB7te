@@ -19,3 +19,5 @@ other games I like: Minecraft, Skate(3), visual novels, (preferably horror or ps
 Ships I really like: 1xdoe(any media) Pizzatime (frskn) pizzaburger(anymedia) RocketHammer (phighting) Teahero (blocktales my yume ship :3
 
 I don't have any friends so I may latch onto you if you can entertain conversations well
+
+Feel free to c+h, idm being covered a bit :3
