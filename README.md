@@ -4,7 +4,7 @@ I love to talk, I am just bad at initiating at first TT please don't ask to add 
 
 current fandoms: Blocktales, Forsaken, Phighting, mlp g4, fnaf
 
-big fan of crafts, drawing, cosplay/making props, Kandi ects, I am furry and LGBT friendly <3
+big fan of crafts, drawing (traditional and digital) cosplay/making props, Kandi ects, I am furry and LGBT friendly <3
 
 fandoms that still linger: Danganronpa, Undertale, homestuck, things that were popular in 2014 TT
 
