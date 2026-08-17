@@ -2,6 +2,8 @@ Read me x3
 
 I love to talk, I am just bad at initiating at first TT please don't ask to add me on discord if you're not interested in talking, i'm here to make connections
 
+I selfship heavy with Mayor thaniyel from blocktales <3
+
 current fandoms: Blocktales, Forsaken, Phighting, mlp g4, fnaf
 
 big fan of crafts, drawing (traditional and digital) cosplay/making props, Kandi ects, I am furry and LGBT friendly <3
