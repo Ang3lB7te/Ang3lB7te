@@ -2,6 +2,8 @@ Read me
 
 I love to yap, I am just bad at initiating at first
 
+Big selfshipper of Mayor thaniyel from blocktales
+
 current fandoms: Blocktales, Forsaken, Phighting, mlp g4, fnaf
 
 big fan of crafts, drawing (traditional and digital) cosplay/making props, Kandi ect, LGBT and furry friendly
