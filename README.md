@@ -19,3 +19,5 @@ other games I like: Minecraft, Skate(3), visual novels, (preferably horror or ps
 I like most ships and parings, given they are both adults and not related (1xshed is all good, I find the dynamic hilarious. Big 1xdoe enthusiast mostly
 
 Feel free to c+h, idm being covered a bit
+
+John doe skins who int will get tickled on sight 
