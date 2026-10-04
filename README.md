@@ -1,6 +1,6 @@
 Read me
 
-I love to yap, I am just bad at initiating at first
+I love to yap, I am just bad at initiating at first, Don't be afraid to talk to me, even if I'm sitting with someone else
 
 Big selfshipper of Mayor thaniyel from blocktales
 
