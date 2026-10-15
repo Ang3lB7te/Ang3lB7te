@@ -1,7 +1,6 @@
 DNI if your only intentions are to use me as a placeholder while you wait for others
 
-Big dni if you're friends with Axercist or jesskosh,ID-Trapped(skin stealer) (transphobic individuals)
-
+Big dni if you're friends with Axercist or jesskosh,ID-Trapped(skin stealer/transphobic individuals)) I have ss of my ponies from years ago if you want proof 
 
 I love to yap, I am just bad at initiating at first, Don't be afraid to talk to me, even if I'm sitting with someone else
 
