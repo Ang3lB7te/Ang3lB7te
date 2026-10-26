@@ -1,4 +1,4 @@
-DNI if your only intentions are to use me as a placeholder while you wait for others
+
 
 Big dni if you're friends with Axercist or jesskosh,ID-Trapped(skin stealer/transphobic individuals)) I have ss of my ponies from years ago if you want proof 
 
