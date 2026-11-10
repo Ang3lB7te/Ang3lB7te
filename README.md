@@ -4,22 +4,12 @@ Big dni if you're friends with Axercist or jesskosh,ID-Trapped(skin stealer/tran
 
 I love to yap, I am just bad at initiating at first, Don't be afraid to talk to me, even if I'm sitting with someone else
 
-Big selfshipper of Mayor thaniyel from blocktales
+Systems dni
 
-current fandoms: Blocktales, Forsaken, Phighting, mlp g4, fnaf
+current fandoms are: Forsaken, blocktales, phighting
 
-big fan of crafts, drawing (traditional and digital) cosplay/making props, Kandi ect, LGBT and furry friendly
+Games I like: Minecraft, the skate games, anything Roblox horror adjacent, mewgenics, mirrors edge
 
-fandoms that still linger: Danganronpa, Undertale, homestuck, things that were popular in 2014 TT
+1xdoe enthusiast mainly but other ships are fine given they are legal
 
-music: Will Wood, Lemon demon, MCR, fandom type music, FNAF, vocaloid, batim, onece again 2014 fandom music and edit audios
-
-I love Roblox,,horror specifically: depth spelunking or anything around that type, along with more story based horror games I can find
-
-other games I like: Minecraft, Skate(3), visual novels, (preferably horror or psychological)
-
-I like most ships and parings, given they are both adults and not related (1xshed is all good, I find the dynamic hilarious. Big 1xdoe enthusiast mostly
-
-Feel free to c+h, idm being covered a bit
-
-John doe skins who int will get tickled on sight
+C+H always fine
