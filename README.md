@@ -6,6 +6,8 @@ I love to yap, I am just bad at initiating at first, Don't be afraid to talk to 
 
 Systems dni
 
+kins are good to int
+
 current fandoms are: Forsaken, blocktales, phighting
 
 Games I like: Minecraft, the skate games, anything Roblox horror adjacent, mewgenics, mirrors edge
