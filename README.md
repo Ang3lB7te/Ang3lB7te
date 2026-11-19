@@ -8,7 +8,7 @@ Systems dni
 
 kins are good to int
 
-current fandoms are: Forsaken, blocktales, phighting
+current fandoms are: Forsaken, blocktales, phighting, classof09, FNAF,Undertale/Deltarune
 
 Games I like: Minecraft, the skate games, anything Roblox horror adjacent, mewgenics, mirrors edge
 
