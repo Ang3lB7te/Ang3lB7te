@@ -1,6 +1,6 @@
 
 
-Big dni if you're friends with Axercist/(ID-8024779 · ㅤ) or jesskosh,ID-Trapped(skin stealer/transphobic individuals)) I have ss of my ponies from years ago if you want proof 
+Big dni if you're friends with Axercist/ID-8024779 · ㅤ or jesskosh, ID-Trapped/ID-40039153 ·  (skin stealer/transphobic individuals)) I have ss of my ponies from years ago if you want proof 
 
 I like to talk,, I am just bad at initiating at first
 
